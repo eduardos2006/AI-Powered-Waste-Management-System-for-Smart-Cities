@@ -1,0 +1,1 @@
+# AI-Powered-Waste-Management-System-for-Smart-Cities
